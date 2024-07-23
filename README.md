@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **neelanimmanagoti11@gmail.com**
 
-- 📄 Know about my experiences [https://1drv.ms/b/s!AjntLFP_gDQDguVbzcd91xRwkfQJew?e=618Ioh](https://1drv.ms/b/s!AjntLFP_gDQDguVbzcd91xRwkfQJew?e=618Ioh)
+- 📄 Know about my experiences https://1drv.ms/b/s!AjntLFP_gDQDgukf3Q51gLq7d9k_UQ?e=hoNitj
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
